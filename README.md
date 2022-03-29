@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Iyadh1000
 - 👀 I’m interested in ALL IT PROBLEMS
 - 🌱 I’m currently learning DEVLOP 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on INVEST / LEADER / WORKING HARD
 - 📫 How to reach me ...
 
 <!---
